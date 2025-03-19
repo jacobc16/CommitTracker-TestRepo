@@ -36,7 +36,7 @@ Bye!
 Barry, I told you, stop flying in the house!
 Hey, Adam.
 Hey, Barry.
-Is that fuzz gel?
+Is that fuzz gel? I am the secret
 A little. Special day, graduation.
 Never thought I'd make it.
 Three days grade school, three days high school.
