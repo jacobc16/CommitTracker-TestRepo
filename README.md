@@ -1,6 +1,6 @@
 s# CommitTracker-TestRepo
 t
-cool
+coolt
 dqwdqw
 
 another cool change
