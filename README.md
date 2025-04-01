@@ -11,7 +11,7 @@ Its wings are too small to get its fat little body off the ground.
 The bee, of course, flies anyway because bees don't care what humans think is impossible.
 Yellow, black. Yellow, black. Yellow, black. Yellow, black.
 Ooh, black and yellow!
-Let's shake it up a little.
+Let's shake it up a little.s
 Barry! Breakfast is ready!
 Coming!
 Hang on a second.
